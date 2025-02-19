@@ -1,2 +1,4 @@
 # README
-dv8uhjwamvruhw
+Jayden Ye 
+Computer Science
+4/2028
